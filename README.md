@@ -1,1 +1,0 @@
-# a-schaafsma.github.io
